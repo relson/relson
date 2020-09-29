@@ -2,5 +2,5 @@
 
 - 🔭 I’m currently working on Ponto iD
 - 💬 Ask me about Anything
-- 📫 How to reach me: relson@gmail.com
+- 📫 How to reach me: relson@gmail.com or via WhatsApp +55 62 9 8295-5968
 - 😄 Pronouns: Réusson
